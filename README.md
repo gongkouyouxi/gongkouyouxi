@@ -1,7 +1,7 @@
 
 <https://gongkouyouxi.github.io>
 
-< https://www.ntrku.com>
+<https://www.ntrku.com>
 
 这里集结海量 黄油游戏资源，工口游戏-RPG、ACG、SLG、Galgame-小熊移植小黄油游戏，只推荐好玩的黄油给你
 
